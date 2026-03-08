@@ -1,4 +1,4 @@
-# Hi, I'm Precious Amune 👋
+# Hi, I am Precious Amune 👋
 
 🎓 Accounting Graduate | 📊 Data Analyst | 🤖 ML Enthusiast  
 📍 Lagos, Nigeria · Open to Remote & On-site Roles
